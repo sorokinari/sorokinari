@@ -4,7 +4,7 @@
 <br clear="both">
 
 <div align="left">
-  <img height="150" src="https://media.discordapp.net/attachments/822204673665925123/1259595708080590858/Untitled51_20240707211827.png?ex=669035ea&is=668ee46a&hm=f13157a620a085b26009e62c31dc7084c4d9ca1a0699b0a42c35e3b2117e7c5f&=&format=webp&quality=lossless&width=840&height=280"  />
+  <img height="150" src="https://64.media.tumblr.com/b53981bcd53b803931e1339b94610147/f56f8096f64624bc-5f/s500x750/e31ab41380fb2e1abd1119574a8b035e16f3af8e.pnj"  />
 </div>
 
 ###
