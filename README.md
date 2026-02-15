@@ -10,6 +10,9 @@
 ###
 
 <p align="left">𝐒𝐎𝐑𝐎 or, 𝐒𝐀𝐁𝐈𝐍𝐀. ╋╋╋ ++ <br> 〔 𝐒𝐋𝐀𝐕𝐈𝐂 〕 ╋━━━━━╋ .. 𝐆𝐎𝐓𝐇 / 𝐑𝐈𝐕𝐄𝐓-𝐇𝐄𝐀𝐃 <br>𝐰𝐢𝐭𝐜𝐡-𝐜𝐫𝐚𝐟𝐭 - 𝐭𝐡𝐞𝐢𝐬𝐭𝐢𝐜 𝐬𝐚𝐭𝐚𝐧𝐢𝐬𝐭 .. fem&neu terms preffered<br>╋╋╋ TECH NERD + MUSIC ENTHUSIAST<br>╋╋ /always around the docks, feel free to interact with me/ ╋╋<br><br>ᚹᛁᛏᚲᚺᚲᚱᚨᚠᛏ, ᚨᛊ ᛗᛟᛊᛏ ᚲᛟᛗᛗᛟᚾᛚᛁ ᚢᚾᛞᛖᚱᛊᛏᛟᛟᛞ ᛁᚾ ᛒᛟᚦ<br>ᚺᛁᛊᛏᛟᚱᛁᚲᚨᛚ ᚨᚾᛞ ᛈᚱᛖᛊᛖᚾᛏ-ᛞᚨᛁ ᚲᛟᛗᛗᚢᚾᛁᛏᛁᛖᛊ</p>
-<img align="left" src="https://profile-counter.glitch.me/sorokinari/count.svg?"  />
-
-<p align="left"> Host of EYES of MATER [EOM], Co-host of Massacre Association [MA]
+<p align="left"> CREATOR | OWNER OF "Daility Tristis" Series.
+<p align="left">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=0pm6vc8nkkba6lnrjwwgmfqub&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=a30000&bar_color_cover=true">
+  </a>
+</p>
